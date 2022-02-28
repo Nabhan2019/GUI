@@ -1,1 +1,1 @@
-https://info.financeinfolibrary.com/Forcepoint-Enterprise998Download.jsp
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_NzUxMTE5NDYtMjNmMy00YjA1LThjZmEtYzg4ZDdhYzQ1ZDI0%40thread.v2/0?context=%7b%22Tid%22%3a%22bb6ed0d6-8e5e-497f-91c1-f1a0cc22510e%22%2c%22Oid%22%3a%22476167eb-cdf7-490d-985c-521ab62df968%22%7d
