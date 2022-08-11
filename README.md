@@ -1,11 +1,1 @@
-[N
-](https://www.pinterest.com/pin/892346113638318133/)
-https://www.youtube.com/channel/UCzJkfdj2rrChFQA7cxF2F1w/featured
-https://smartdeals.jp.aptoide.com/app
-https://smartdeals.cn.aptoide.com/app
-https://adib-otp-v4.softonic-ar.com/android
-https://adibmobile2.softonic-ar.com/android
-https://smartdeals.kr.aptoide.com/app
-https://smartdeals.es.aptoide.com/app
-https://smartdeals.mx.aptoide.com/app
-https://smartdeals.ru.aptoide.com/app
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_YjhmYjE5Y2EtMjhjNi00OWM4LWJjMDYtOTFjYmIwNGU5MTNj%40thread.v2/0?context=%7b%22Tid%22%3a%22bb6ed0d6-8e5e-497f-91c1-f1a0cc22510e%22%2c%22Oid%22%3a%22b59f5e0b-8bcb-4257-b617-82610db9a29a%22%7d
