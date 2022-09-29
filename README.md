@@ -1,4 +1,1 @@
-https://www.adib.iq/en/Pages/AccountLogin.aspx
-https://www.jobzella.com/adibegypt
-http://www.adib.co.uk/en/Pages/default.aspx
-https://adibdirect.com/iportalweb/iportal/jsps/orbilogin.jsp
+https://drive.google.com/drive/folders/1fTOppcvUqhslZz51HM09ES7pLs4xxbA-?usp=sharing
